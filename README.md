@@ -7,7 +7,7 @@
 
 <a
 
- href="https://sites.google.com/u/0/d/18BeRyToVV49B5D3mOTgTeW2IPX5hM0as/preview"><p>&#128516</p>
+ href="https://sites.google.com/view/kdchats/home?authuser=0"><p>&#128516</p>
 
     
 
